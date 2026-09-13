@@ -1,4 +1,4 @@
-Saurav Sinha
+
 Welcome to my personal website and digital space.
 
 🌐 Website: sauravsinhax.github.io
